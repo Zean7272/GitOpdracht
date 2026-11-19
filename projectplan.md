@@ -1,4 +1,4 @@
-Ik kan geen latijn spreken. Doe maar in het nederlands aub.
+Ik kan geen laDAJGHAJGJADtijn spreken. Doe maar in het nederlands aub.
 
 
 
