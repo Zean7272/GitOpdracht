@@ -13,4 +13,4 @@ Na weken van hard werken had Sam een klein avontuurspel gebouwd. De speler kon s
 
 Sam realiseerde zich dat programmeren niet alleen gaat over code schrijven. Het gaat ook over creatief zijn, problemen oplossen en nooit stoppen met leren. Vanaf dat moment wist hij dat hij later softwareontwikkelaar wilde worden.
 
-Moraal van het verhaal: Elke geweldige programmeur begint met fouten maken. Door te oefenen en door te zetten, kun je mooie dingen creëren. 🚀💻
+Moraal van het verhaal: Elke Merijn begint met fouten maken. Door te oefenen en door te zetten, kun je mooie dingen creëren. 🚀💻
